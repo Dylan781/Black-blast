@@ -1,3 +1,4 @@
+hello my name dylan 
 # How to Play Block Blast: The Ultimate Guide to Mastering Block Blast Game
 
 Are you ready to [**play Block Blast**](https://blockblast.co) like never before? Whether you're new to **Block Blast** or looking to enhance your **Block Blast game** skills, this comprehensive guide will transform you into a **Block Blast** master. When you **play Block Blast online** or enjoy **Block Blast Unblocked**, your primary objective is to strategically clear complete rows and columns on an 8x8 grid. The **Block Blast game** experience offers endless entertainment for both casual and competitive players. As you dive deeper into **Block Blast**, you'll discover that while the **Block Blast game** rules are straightforward, the strategic depth keeps players engaged for hours.
